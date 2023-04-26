@@ -1,4 +1,4 @@
-### pake nanya ![MuaKissGIF](https://user-images.githubusercontent.com/88422938/234443795-d65503f5-3f4b-430a-9908-fcadaf36fed2.gif)
+### pake nanya ^_^
 
 
 <!--
